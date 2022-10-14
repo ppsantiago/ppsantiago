@@ -1,3 +1,3 @@
-**ppsantiago/ppsantiago**
+**PPSantiago**
 - 📫 ppsantiago@spandsaibot.com.ar
 
